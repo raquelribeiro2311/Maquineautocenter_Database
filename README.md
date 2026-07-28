@@ -1,4 +1,5 @@
 ## MAQUINÉ AUTO CENTER DATABASE
+<img width="1280" height="528" alt="WhatsApp Image 2026-07-28 at 14 57 25" src="https://github.com/user-attachments/assets/f1d66faf-7720-4484-94a4-9046a5c9e481" />
 
 ## DIAGNÓSTICO DA SITUAÇÃO 
 
